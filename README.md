@@ -1,1 +1,0 @@
-A heartfelt tribute to the Missile Man of India, Dr. APJ Abdul Kalam. This website pays homage to his extraordinary contributions to science, education, and nation-building, encapsulating the essence of his remarkable life.
